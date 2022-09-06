@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @AnnAnna25 future psychotherapist 🧠
+- 👋 Hi, I’m @AnnAnna25 future psychotherapist 💡
 
-- 👀 I’m interested in psychology, Web3, DAOs, psychology research
+- 👀 I’m interested in psychology, Web3, DAOs, research
 
 - 🌱 I’m currently learning conflict management, graphic design, psychology
 
